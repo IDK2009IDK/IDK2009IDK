@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @IDK2009IDK
+- 👀 I’m interested in games
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me i don't know
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: i'm stuped
